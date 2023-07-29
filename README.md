@@ -1,1 +1,1 @@
-# opensea-giveaway-github.io
+# opensea-nft-prize.github.io
